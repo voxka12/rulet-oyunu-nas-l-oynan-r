@@ -1,0 +1,1 @@
+# rulet-oyunu-nas-l-oynan-r
